@@ -15,7 +15,7 @@ I'm a **Software Engineer in training** 💻, transitioning from a background in
   
 ### ⚡ Fun fact:
 - I’ve been obsessed with spinach soup since childhood! 🍲
-- I’m a **black belt in Karate** 🥋 and I run **Ironman triathlons** 🏊‍♀️🚴‍♀️🏃‍♀️.
+- I’m a **black belt in Karate** 🥋 and I compete in **Ironman triathlons** 🏊‍♀️🚴‍♀️🏃‍♀️.
 
 
 **Let's connect and create something amazing! 🌟**
