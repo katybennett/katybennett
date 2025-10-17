@@ -1,7 +1,7 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)I'm Katherin!
 ========================================================================================================================================
 
-I'm a **Software Engineer in training** 💻, transitioning from a background in **Science, Engineering, and Semiconductors**🔬. Passionate about continuous learning, creativity 💡, and solving problems with technical skills ⚙️. 
+I’m a Software Engineer 💻, transitioned from a background in Science, Engineering, and Semiconductors 🔬, with over 10 years of experience in STEM. Passionate about continuous learning, creativity 💡, and solving problems with technical skills ⚙️.
 
 *   🌍  I'm based in United Kingdom
 *   ✉️  You can contact me at [katyrs22@gmail.com](mailto:katyrs22@gmail.com)
